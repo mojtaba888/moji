@@ -1,0 +1,2 @@
+# moji
+Fuck u
